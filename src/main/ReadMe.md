@@ -4,15 +4,15 @@
 
 3)
 
-4)
+4) Andrew Hiles
 
 5) Joshua Dreesman
 
 6) Caleb Borlin
 
-7)
+7) Reid Olsen
 
-8)
+8) Andrew George
 
 9)
 
