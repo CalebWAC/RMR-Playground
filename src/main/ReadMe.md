@@ -10,7 +10,7 @@
 
 6) Caleb Borlin
 
-7) Reid Olsen
+7) Reid Olsen I can do anything, I'm so powerful, kneel before my power, you fools
 
 8) Andrew George
 
