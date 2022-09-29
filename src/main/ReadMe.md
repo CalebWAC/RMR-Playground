@@ -8,7 +8,7 @@
 
 5) Joshua Dreesman
 
-6) Caleb Borlin
+6) Caleb Borlinio
 
 7) Reid Olsen
 
