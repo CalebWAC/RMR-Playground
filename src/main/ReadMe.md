@@ -1,6 +1,11 @@
+<<<<<<< HEAD
+0) Derek Pendley
+
+=======
+>>>>>>> 6ce01f5507348fbd1ecf8192e26b1b3626070b16
 1) Aryan Tuteja
 
-2)
+2) Pranav Bhatia
 
 3)
 
