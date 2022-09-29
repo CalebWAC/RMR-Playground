@@ -5,7 +5,7 @@
 >>>>>>> 6ce01f5507348fbd1ecf8192e26b1b3626070b16
 1) Aryan Tuteja
 
-2)
+2) Pranav Bhatia
 
 3)
 
@@ -15,7 +15,7 @@
 
 6) Caleb Borlin
 
-7) Reid Olsen
+7) Reid Olsen I can do anything, I'm so powerful, kneel before my power, you fools
 
 8) Andrew George
 
