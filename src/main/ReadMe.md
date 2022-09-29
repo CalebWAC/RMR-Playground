@@ -1,9 +1,8 @@
-
 1) Aryan Tuteja
 
 2)
 
-3)Derek Pendley
+3)
 
 4) Andrew Hiles
 
@@ -13,7 +12,7 @@
 
 7) Reid Olsen
 
-8)
+8) Andrew George
 
 9)
 
