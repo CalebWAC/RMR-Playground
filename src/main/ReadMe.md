@@ -1,4 +1,4 @@
-1) Andrew Georgeoi
+1) Andrew George
 
 2) 
 
