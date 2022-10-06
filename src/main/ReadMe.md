@@ -1,20 +1,20 @@
-1) Aryan Tuteja
+1) 
 
-2) Pranav Bhatia
+2) 
 
-3) Derek Pendley
+3) 
 
-4) Andrew Hiles
+4) 
 
-5) Joshua Dreesman
+5) 
 
-6) Caleb Borlin
+6) 
 
-7) Reid Olsen I can do anything, I'm so powerful, kneel before me, you fools
+7) 
 
-8) Andrew George :)
+8) 
 
-9) Shivam Singh
+9) 
 
 10)
 
